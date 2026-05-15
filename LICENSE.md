@@ -1,4 +1,4 @@
-# 
+# secure Plugin for Shotcut for PC | Shotcut for Windows - multi-track-editing and green-screen-removal offers the most advanced Shotcut for PC | Shotcut for Windows plugin, with
 
 
 
